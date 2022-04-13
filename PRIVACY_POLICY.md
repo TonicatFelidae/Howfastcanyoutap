@@ -11,6 +11,6 @@ Yours sincerely,
 
 Tonicat Felidae
 
-Founder, Tonicat Felidae - Hue Vietnam
+Founder, Nekoniii Studio - Hue Vietnam
 
 nekoniiistudio@gmail.com
